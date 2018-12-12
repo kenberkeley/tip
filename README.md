@@ -1,4 +1,4 @@
-# ※ Tip / 打赏
+# Tip / 打赏
 
 ### ⊙ [paypal.me/kenberkeley](https://www.paypal.me/kenberkeley/10)
 
